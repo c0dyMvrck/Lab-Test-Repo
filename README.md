@@ -4,8 +4,4 @@
 A line written from GitKRaken BOI 
 A line written in R from R Studio 
 
-
-
-Tits
-
-and ASS
+Connor Furio is a small man 
